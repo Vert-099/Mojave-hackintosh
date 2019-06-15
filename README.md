@@ -14,4 +14,4 @@ PC LAPTOP SUPPORT:  (Lenovo) (acer) (Asus)  (HP)  (Toshiba)  (Dell)
 
 Intel Inside Core i3 i5 i7 ) for Mojave 14 and High Sierra 13 its all support 
 
-Dont forget Like 
+Dont forget Like .... 
